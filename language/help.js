@@ -3,21 +3,21 @@
 //▮
 //▮FORK AND DON'T FORGET TO GIVE A STAR
 //▮
-//▮ZimBotInc SOFTWARE IS UNDER UZ COPYRIGHT
+//▮Mubashir SOTWARE IS UNDER UZ COPYRIGHT
 //▮
 //▮REPORT ABUSE OF ZimBotInc SOFTWARE EMAIL US
-//▮reinhardtuna@mail.uk
-//▮WHATSAPP US : +44 7441 437150
-//▮YOUTUBE CHANNELL: https://youtube.com/c/DRIPSOFC
+//▮mubashirriaz1111@gmail.com
+//▮WHATSAPP US : +9235103557
+//▮YOUTUBE CHANNELL: https://youtu.be/HMdjXEPvzXo
 //▮
 //╰▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
 //
 //┏━━━━━━━━━━━━━━━━━━━━━━━━━
-//┃ZimBotInc SOFTWARE INCLUDES 
+//┃Mubashir SFTWARE INCLUDES 
 //┃SOME ENCRYPTED FILES
 //┃
-//┃THANKS FOR CHOOSING ZIMBOT
-//┃THANKS TO DIKA ARDNT
-//┗━━━━━━━━━━━━━━━━━━━━━━━━━
+//┃THANKS FOR CHOOSING mubashir
+//┃THANKS TO Mub@shir wa.me/923051038557
+//┗━━━━━━━━━━━━━━━━━━━━━━━━
 //
-//By Drips
+//By mubashir
